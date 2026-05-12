@@ -1,1 +1,1 @@
-Project from the MIC MSc students: Ferran, Teresa and Mar
+Project from the MIC MSc students: Ferran, Teresa and Mar.
